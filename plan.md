@@ -21,16 +21,9 @@ high-speed data in 215+ international destinations. Full-flight texting and Wi-F
 making this plan ideal for frequent travelers.
 
 
-**Essentials** costs $60/month for 1 phone line, $90/month for 2 or 3 phone lines, $100/month for 4 phone lines, 
-$120/month for 5 phone lines, plus taxes and fees. This limited-time deal provides a budget-friendly option while 
-still delivering the essentials. It includes unlimited talk and text and 50GB of 
-premium data, along with access to T-Mobile’s 5G network. This plan supports up to 6 lines 
-and is ideal for users looking for core features without the additional entertainment or upgrade perks.
 
-
-
-The Essentials Saver plan is priced at a discounted rate of $50/month for 1 phone line, $80/month for 
-2 phone lines, $100/month for 3 phone lines, plus taxes and fees. This is T-Mobile’s lowest-priced 
+**Essentials** plan is priced at a discounted rate of $50/month for 1 phone line, $80/month for 
+2 phone lines, $90/month for 3 phone lines, $100/month for 4 phone lines, $120/month for 5 phone lines, plus taxes and fees. This is T-Mobile’s lowest-priced 
 unlimited plan, offering unlimited talk, text, and data at a budget-friendly cost. It includes 50GB of 
 premium data, making it suitable for users who want essential wireless features at a reduced rate. 
 The AutoPay discount is applied when using an eligible payment method.
